@@ -1,3 +1,3 @@
-## hoi were shoto ok pls foolooww us on our main acc 
+## 
 
 ![](https://komarev.com/ghpvc/?username=med-kt&color=7cca92)
