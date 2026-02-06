@@ -11,3 +11,12 @@ ${\textsf{\color{#428555} sign ata ,  strawpage soon.  }}$
 ![baka](https://github.com/user-attachments/assets/ab7119d4-0655-476f-b48c-c8668559805c)
 ![cookierundance](https://github.com/user-attachments/assets/f51bed70-8271-4963-882a-e9d11b1b85af)
 ![tumblr_41c41d9f16c2bee5e0fa5475b22cedeb_a6f8bee8_250](https://github.com/user-attachments/assets/19e01fd1-796e-4742-acaa-716912d3802b)
+![parpapr](https://github.com/user-attachments/assets/c3cda06b-0497-4a48-9feb-f7fcf0c4fbf2)
+<img width="99" height="56" alt="beee mc" src="https://github.com/user-attachments/assets/f15f07f0-fd0f-4156-9f01-90236e51ec78" />
+![etalia](https://github.com/user-attachments/assets/acced6bd-3342-4ff7-9d0c-f511ffef3df9)
+![jumpi](https://github.com/user-attachments/assets/9fa20e2d-e3a9-4e2e-81b3-5e69aa80531c)
+![madohomur](https://github.com/user-attachments/assets/12aab5a5-3b76-49df-80c4-f1af0814fe2b)
+![mesmeriz](https://github.com/user-attachments/assets/e673a75c-8058-4ad2-bf34-ef1cb5894c09)
+![alrech](https://github.com/user-attachments/assets/797f99db-3a36-4349-8b07-ffa16b74d496)
+![americ](https://github.com/user-attachments/assets/98ba29d4-47ac-495b-bacd-08e134497fd7)
+![subsbpe](https://github.com/user-attachments/assets/e61fc59b-c52c-4149-b064-b2925149d22c)
